@@ -1,0 +1,2 @@
+# STATISTIKA-KELOMPOK-1
+untuk tugas
